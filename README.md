@@ -8,4 +8,4 @@ My favorite color is Rose gold
 
 My favorite 3 artist are ABoogie, Chris Brown, Ariana Grande
 
-On the weekends I like to Watch Netflix and go shopping
+On the weekends I like to watch Netflix and go shopping
